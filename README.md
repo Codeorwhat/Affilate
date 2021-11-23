@@ -1,1 +1,2 @@
-# Affilate
+# Affilate! 
+# Sell and earn
